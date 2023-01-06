@@ -1,0 +1,1 @@
+# What-Are-The-Commonalities-of-Successful-Social-Enterprises----An-Empirical-Study-Based-on-B-Corp-
