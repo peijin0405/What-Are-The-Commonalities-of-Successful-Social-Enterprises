@@ -7,9 +7,9 @@ B Corp Impact Data: https://data.world/blab/b-corp-impact-data
 
 ![2daad367ceb85212bd6f41ccbd4633f](https://user-images.githubusercontent.com/89746479/211071773-31d49669-5355-4ed8-b2fe-7101332cc8ed.png)
 
-![image](https://user-images.githubusercontent.com/89746479/215656552-057ba628-557b-481f-b0bc-12dc547a0160.png)
+![bc50be867fdafc04576eef3ce91f050](https://user-images.githubusercontent.com/89746479/215656807-4247ba69-cc4f-48f9-9a4f-07204646d533.png)
 
-![image](https://user-images.githubusercontent.com/89746479/215656579-c6630cb7-c050-4669-81cc-d9a3cdacea6c.png)
+![82972f7ec50fda8ee6025f1ba3ce223](https://user-images.githubusercontent.com/89746479/215656832-c76afe90-e3d5-4d7a-8aef-9f2a04a9ca14.png)
 
 ![d180575add04a5617ee2706bb93c8e0](https://user-images.githubusercontent.com/89746479/211071796-bc68a070-a743-4813-ac2a-a893f21baa7c.png)
 
